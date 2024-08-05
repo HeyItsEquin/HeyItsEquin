@@ -1,7 +1,5 @@
 # Hey there! I'm Equin :3
 
-![[Equin-Pfp.png]]
-
 ## About me!
 ##### Pronouns:
 Any Pronouns work!
